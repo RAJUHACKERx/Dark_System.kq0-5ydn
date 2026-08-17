@@ -1,1 +1,1 @@
-# Dark_System.kq0-5ydn
+Github Ini Telah Diawasi Oleh Dark System Jika Ingin Melepas Nya Maka Join Ch @yatimitu123
